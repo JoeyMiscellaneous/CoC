@@ -1,4 +1,5 @@
-8/1
+#8.1
+
 Kleb has hobbit feet. Size 11.5 despite being only 5'10". His wife insists she likes them, he mostly believes her.
 
 Yakov(<characters#Liam: Yakov>) is a surprisingly good cook. He makes a mean beef stew.
@@ -21,10 +22,17 @@ Inessa almost poisoned her family with mushrooms when she was learning how to co
 
 Leo is missing a chunk of his ear from a wound he got in service. Favorite color is yellow and cultivates daisies outside of his house.
 
-Yakov is afraid of horses growing up, but got over it as he started working with them.
 
 Kleb was extremely afraid of horses since one bit him when he was a small boy. He didn't get over that fear until he was 20 and didn't want to act like a coward in front of the woman who would become his wife. He shortly after fell in love both her and horses. Horses, non-romantically though. He also grew 5 inches when he was 13.
 
-
-
 ## Many facts were lost in the great Joey Deleting his WSL Instance Tragedy of June, 2025.
+
+# 8.8
+
+Inessa is really good at holding his breath.
+
+Yakov's favorite instrument to listen to is harpsichord.
+
+In Tales of Explorer Coslov #251 he was surrounded by a native tribe. He never got to finish that one.
+
+Kleb in stressful situations usually thinks of his wife, but today he finds himself thinking much more about his son.
