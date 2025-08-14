@@ -8,7 +8,11 @@ Kleb Roegev
     Dex 11 (+0)
     Str 11 (+0)
 
-NEW STUFF:
+# Saves
+    Physical 11
+    Evasion 12
+    Mental 11
+    Luck 12
 
 # Health
     14 Hit Points
