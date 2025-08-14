@@ -1,33 +1,29 @@
 Kleb Roegev
 
 # Stats
+    Wis 14 (+1)
+    Cha 14 (+1)
+    Con 14 (+1)
+    Int 11 (+0)
+    Dex 11 (+0)
+    Str 11 (+0)
 
-Wis +1
-Cha +1
-Con +0
-Int +0
-Dex +0
-Str +0
+NEW STUFF:
 
-# Hit Points
-
-6 Hit Points
-1 Down Point
-
-# Strain
-
-4 Strain
-
-# Bonuses
-
-Polymath
-Cultured
+# Health
+    14 Hit Points
+    4 Strain
 
 # Skills
-    Shoot
-    Pray +1
+    Pray +2
     Connect +1
+    Shoot +1
     Convince +1
+
+# Foci
+    Polymath
+    Cultured
+    Magic Foci
 
 # Weapons
     Pistol
@@ -42,9 +38,7 @@ Cultured
     Rations x 8
 
 # Projects
-
-Can't remember what it's called
+    Can't remember what it's called
 
 # Others
-
-I have a devil's bargain
+    I have a devil's bargain

@@ -22,6 +22,7 @@ Inessa almost poisoned her family with mushrooms when she was learning how to co
 
 Leo is missing a chunk of his ear from a wound he got in service. Favorite color is yellow and cultivates daisies outside of his house.
 
+Yakov is afraid of horses growing up, but got over it as he started working with them.
 
 Kleb was extremely afraid of horses since one bit him when he was a small boy. He didn't get over that fear until he was 20 and didn't want to act like a coward in front of the woman who would become his wife. He shortly after fell in love both her and horses. Horses, non-romantically though. He also grew 5 inches when he was 13.
 
