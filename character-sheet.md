@@ -15,7 +15,8 @@ Kleb Roegev
     Luck 12
 
 # Health
-    14 Hit Points
+    Max: 14 Hit Points
+    Current: 10 Hit Points
     4 Strain
 
 # Skills
