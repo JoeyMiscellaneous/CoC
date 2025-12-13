@@ -131,5 +131,3 @@ He unbuckles the chute / anchor strapped to him and tries to swim back to the sh
 
 Inessa makes a mental map of everything and then lands near where V and Malik were in the jungle.
 
-
-

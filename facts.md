@@ -67,3 +67,7 @@ Inessa has a journal where she writes poems, or things that she observes in a bo
 The guy Leo let die is making him feel real guilty.
 
 Kleb is usually little spoon and falls asleep with his wife's hand on his stomach. Since leaving, he's had his own hand on his stomach there when he falls asleep. He has not realized it.
+
+# 12/12
+
+Kleb is sort of in crisis about power.
