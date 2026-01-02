@@ -1,0 +1,62 @@
+## The Untrod Path
+
+[Unmolested count]: 2
+
+- Dmitri says he has no idea that his sister was dead, but now it's unsafe, a giant bease is hunting them
+    - They were setting a trap for it but it has not come yet
+    - He says "I am not my sister's keeper"
+    - Dmitri asks how many we are, he's clearly scared
+    - Wants to get back to the ship
+    - Inessa and Kleb return from meeting Dmitri, back to the boat
+- It's Dimitri + 3 others, 1 wounded and on makeshift crutches
+    - I tend to the wounded man, he has a huge bite mark and possibly a broken leg. I set it and rebandage him.
+    - The men with Dmitri are Krasnovs, not union men
+    - We set out back to the shore
+- As we return to the icy pool, the ice is broken
+    - Dmitri and Polachev are talking in hushed voices, seem on edge
+    - Hands on weapons and casting shifty glances
+- We make our way back to the beach unmolested
+    - Kleb sees new, fresh wolf tracks
+    - We ferry the wounded man onto the ship and then set about moving the crashed ship
+    - We spend a while devising how to blow the ship free, finally setting on a plan
+    - Dmitri and his goons emerge from the ship looking very unhappy
+- After some back and forth, I return the tarot cards to Dmitri, along with the strange journal
+    - He's a little unhappy and takes the chest back to the ship
+- We prepare to blow the crashed ship
+    - Dmitri is a bit shocked that Anastasiya is on the ship
+    - Yakov throws the molatov and misses then Kleb sinks a sweet one to light it
+    - The gunpowder catches and the ship starts to crack
+    - We watch the ship burn, and wait, I scan the shoreline for any movements
+    - In the treeline there is movement, trees rustling
+    - The aft of the ship sinks down so we can pass by relatively unmolested
+    - Kleb talks to Dmitri and asks how they ran aground
+    - He says in the fog they hit something
+- We enjoy a homecooked meal on the ship, but Dmitri is still on edge
+    - As night descends, the fog returns, though less dense than the previous night
+    - We decide to weigh anchor and wait for morning, setting a watch to keep
+    - Divide up for 3 4-hour watches with us and 2 dailors at any given time
+- During the night there's sounds on shore, but it's hard to see anything
+    - Kleb explains basketball to Mogev, who's intrigued
+    - In the middle of the night there's a large sound that only Kleb hears
+    - No one can see anything but Kleb still hears a quiet swooshing sound
+    - Yakov fires at the sound and now we're all awake, and on deck
+    - Atop the cabin is a giant wolf, standing 6ft tall and with curling, trailing hair
+    - It stares at us with its lupine eyes
+    - It disappears into the mist and I start frantically lighting the lanterns
+    - Inessa goes to look where it was and finds only claw marks
+    - Jaws appear out of the night and just miss Yakov, I spin to it and fire
+    - Kleb starts praying loud and Yakov runs towards it and blasts it off the deck but it is seemingly unharmed
+    - There's gunfire from below and we run down to see the wolf attacking the Krasnov men
+    - The wolf disappears, and Dmitri runs to his chest, the wolf has taken his bag and he runs back on deck
+    - In the chest are the empty envelopes, but the book, cards, and maps are gone
+    - Back on top, the wolf has killed some crew and has Dmitri's back, then leaps off the ship
+    - As the wolf leaves, Dmitri screams and the mist returns to normal
+- On deck, the wolf has left a viscous, white liquid instead of blood
+    - According to Inessa, before it leapt, the wolf's eyes looked like human blue eyes then turned back
+    - One crew member on deck is concussed but alive, I tend to him successfully
+    - We rest for the rest of the night, and try to make sense of what happened
+- In the morning, the mist is cleared and we set out for the final push to Ceder Crest
+    - After a few hours we spot the fortress that is the landing of Ceder Crest
+    - Deeply secured, the bastion of someone who is making themselves a lord
+    - Dmitri readies himself to see his father and we offload the coffin on our way to the meeting
+
